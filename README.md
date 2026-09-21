@@ -1,2 +1,2 @@
 # paskal
-paskal menyukai nada sampai mati
+paskal suka naomi
